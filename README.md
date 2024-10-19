@@ -1,3 +1,3 @@
 # downloads
-Digital Bible for PC and CP       ---> [https://](https://web.digitalbible.app/)
+Digital Bible for PC and CP       ---> https://web.digitalbible.app
 
