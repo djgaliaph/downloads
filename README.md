@@ -1,3 +1,3 @@
 # downloads
-Available soon.
+Bible for PC -->  https://shorturl.at/nYt4P
 
